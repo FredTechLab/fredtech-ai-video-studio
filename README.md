@@ -1,1 +1,0 @@
-# fredtech-ai-video-studio
